@@ -24,11 +24,11 @@ Here are the most recent working dice links for Monopoly GO. These links are typ
 
 | 📅 Date       | 🎁 Reward     | 🔗 Link              |
 |--------------|---------------|----------------------|
-| April 22, 2025 | +50 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
-| April 21, 2025 | +30 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
-| April 20, 2025 | +100 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
-| April 19, 2025 | +25 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
-| April 18, 2025 | +75 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
+| April 27 to 30, 2025 | +50 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
+| April 26, 2025 | +30 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
+| April 25, 2025 | +100 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
+| April 24, 2025 | +25 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
+| April 23, 2025 | +75 Dice Rolls | [Claim Now](https://lookerstudio.google.com/s/g4NalmqY2KI)        |
 
 > 🔔 **Note:** These links are time-sensitive and usually expire within 48 to 72 hours. Bookmark this page to never miss out.
 
